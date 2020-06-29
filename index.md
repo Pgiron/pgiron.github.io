@@ -8,3 +8,9 @@ On the other side, he is very dynamic and moves very fast from a point to anothe
 * Has enemies
 * Is very smart and young
 * Was adopted by MARVEL
+
+As Peter Parker/Spider-Man said:
+
+> Whatever life holds in store for me, I will never forget these words:
+> "With great power, comes great responsibility." This is my gift, my curse.
+> Who am I? I'm Spiderman.3 may. 2002
